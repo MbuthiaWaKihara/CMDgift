@@ -1,2 +1,2 @@
-exciting cmd effects using only asterisks
+exciting cmd effects using only asterisks. They later changed the baby's name to Kendrick :( smh...
 ![testion](https://github.com/MbuthiaWaKihara/CMDgift/blob/master/images/Screenshot%20(99).png)
